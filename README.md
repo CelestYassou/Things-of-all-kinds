@@ -1,1 +1,1 @@
-# Things-of-all-kinds
+# Tout droit réservé a Célestin
