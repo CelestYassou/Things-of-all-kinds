@@ -1,1 +1,1 @@
-# Tout droit réservé a Célestin
+# Tout droit réservé a CélesteYassou et CelestYassou
